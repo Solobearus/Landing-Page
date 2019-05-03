@@ -2,7 +2,7 @@
 
 have fun traveling in my code universe 
 
-with love and commitment , 
+with love and commitment,
 yours truly - Ivan Dolodov 
 
 🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸
