@@ -1,4 +1,4 @@
-# My awesome exam ! 
+# My awesome landing page! 
 
 have fun traveling in my code universe 
 
